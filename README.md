@@ -1,1 +1,3 @@
-my future employer will shed a tear when he sees my C macros
+comsci major at some college idk im not telling you. dork.
+
+NVRO still the worst "feature" of c++ CALL MY CONSTRUCTORS!!!
