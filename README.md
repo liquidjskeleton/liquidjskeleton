@@ -1,3 +1,3 @@
-comsci major at some college idk im not telling you. dork.
+majoring in comsci at some college idk im not telling you. dork.
 
 NVRO still the worst "feature" of c++ CALL MY CONSTRUCTORS!!!
