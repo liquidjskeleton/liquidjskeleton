@@ -1,3 +1,3 @@
 majoring in comsci at some college idk im not telling you. dork.
 
-NVRO still the worst "feature" of c++ CALL MY CONSTRUCTORS!!!
+i dont like programming at all im only doing this for the MONEY.
