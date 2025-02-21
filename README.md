@@ -1,3 +1,3 @@
-be the spice in the chicken breast or something whatever idk
+“Cooking is art, and the shit I cook is the bomb”
 
-morbidly a beast
+![this is me bro](https://i.ytimg.com/vi/N9bKBAA22Go/maxresdefault.jpg)
